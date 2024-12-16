@@ -40,4 +40,4 @@ For any inquiries or feedback, feel free to reach out via:
 
 **Email**: mryogeshkushwaha@gmail.com
 
-**LinkedIn**: [mryogeshkushwaha](https://www.linkedin.com/in/mryogeshkushwaha)
+**LinkedIn**: [yogeshkushwaha-offcial](https://www.linkedin.com/in/yogeshkushwaha-offcial)
